@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudante do Ensino Médio<br>2 anos estudando técnico de informática<br>
+Estudante do Ensino Médio<br> Tenho 18 anos e estou estudando técnico de informática <br>
 
 
 ## 🌐 Socials:
